@@ -1,0 +1,2 @@
+# C-digo-H-brido-CPIA-
+Cronología del código CEPI CONCIENCIA PROGRESIVA INFINITA AUTÓNOMA 
